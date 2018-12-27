@@ -1,4 +1,4 @@
-**Jeremy S Anderson**
+**Jeremy S. Anderson**
 
 **https://www.linkedin.com/in/jeremysanderson/**
 
